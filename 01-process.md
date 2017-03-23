@@ -144,7 +144,7 @@ anyway.
 
 For two weeks nothing happened.  Then I cried for no reason, once.
 Then I started laughing more.  Smiling more.  Feeling better in
-general.
+general. Not as aggressive as before.
 
 One and half months in, my skin is very soft and not as oily as
 before, my eyelashes are getting even bigger (they were huge
@@ -152,6 +152,7 @@ regardless), the shape of eyelids is changing.  The face as a whole
 seems to be at change but considering how often I look into mirror
 it's hard for me to spot where exactly the difference is.  Body hair
 grows slower and in some places it becomes thinner and discolored.
+I smell better, too.
 
 I never took selfies before.  I'd ask not to take pictures of me.  Now
 almost every day is a selfie day.  Sometimes I like what's in the
