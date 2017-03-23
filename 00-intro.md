@@ -201,7 +201,7 @@ and going to a Wikipedia article.
 
 Yes, it's hard to imagine up until now I didn't really understand what
 "transgender" *really* is and, most important, that I am transgender
-as well.  It took a few months of constant reading, watching movies and
+as well.  It took a few months of constant reading, watching videos and
 thinking before being sure that's the path I choose.
 
 [Back](index.md)
