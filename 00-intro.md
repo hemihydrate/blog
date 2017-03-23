@@ -190,7 +190,7 @@ something again.  It just gets better slowly.
 ## Book
 
 9th of July, 2016.  I'm reading Sarah Waters' "Fingersmith".  Saying it's
-a "criminal drama with lesbians in it" is much of an understatement of
+a "crime novel with lesbians in it" is much of an understatement of
 how *amazing* this book really is, but that's not the point.  It makes
 me remember of all the things written above, everything at once, like
 a blast right into my forehead.  I cry and can't sleep this night.
