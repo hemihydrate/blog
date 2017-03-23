@@ -52,13 +52,13 @@ I thought it's not a big deal.  There are always things to take care
 about while waiting.  There are hobbies to do.  Friends to hang out
 with. Stuff to read.
 
-The closer it would get to the 4 months point, the worse I'd feel
-myself.  A constant fight between "I should wait" and "why the hell
-would I ever wait".  To feel better I read upon facial hair removal
-and phoned a place where electrolysis (a very painful method) was one
-of the options.  The woman that picked up didn't really speak English
-and asked me to call some other place instead, but by insisting I got
-an appointment there.  She would try to convince me not to proceed on
+The closer it would get to the 4 months point, the worse I'd feel.  A
+constant fight between "I should wait" and "why the hell would I ever
+wait".  To feel better I read upon facial hair removal and phoned a
+place where electrolysis (a very painful method) was one of the
+options.  The woman that picked up didn't really speak English and
+asked me to call some other place instead, but by insisting I got an
+appointment there.  She would try to convince me not to proceed on
 that appointment but I was pretty stubborn and she gave up.  Remove my
 hair and JUST TAKE MY MONEY, please.  It is expensive.
 
