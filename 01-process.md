@@ -27,12 +27,12 @@ gaslighting and even threats of physical violence.  I'll list a few
 "standard arguments" a lot of parents try to use against their own
 children:
 
- * You are not <insert gender here>!
+ * You are not `insert gender here`!
  * You're an idiot. An idiot. A stupid fucking idiot.
  * This is a phase, you've always been like that, jumping from one thing to another.
  * You're mentally sick. Ask doctors to check you up.
  * Did doctors convince you? These bastards... Fucking Western Europe...
- * This is an effect of <insert antidepressant here>, I've just read it!
+ * This is an effect of `insert antidepressant here`, I've just read it!
  * Do you want us to die of a heart attack?
  * If you ever chose to proceed, I think we don't want to see you.
  * You aren't welcome at our place.
