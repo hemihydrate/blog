@@ -196,3 +196,5 @@ Then I sat and waited for another person to call me (by my new name
 this time!) for a blood test.  It was fairly quick, no pain, no faint.
 
 People at ANOVA made me feel better.
+
+The next appointment is in May, and it seems to be regarding my blood test.
