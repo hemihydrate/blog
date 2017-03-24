@@ -52,9 +52,29 @@ I thought it's not a big deal.  There are always things to take care
 about while waiting.  There are hobbies to do.  Friends to hang out
 with. Stuff to read.
 
-The closer it would get to the 4 months point, the worse I'd feel.  A
-constant fight between "I should wait" and "why the hell would I ever
-wait".  To feel better I read upon facial hair removal and phoned a
+Dropped around 7kg in three months by not eating well enough and
+running once in per two days. Developed a skin-care routine. Tried
+to fix my sleeping routine, but it's still far from perfect.
+
+Installed a voice-training app on my phone, designed specifically for
+AMABs who want to train a feminine voice. But before I would live alone
+in my new apartment, there was basically no way I could practice without
+being distracted all the time. There are surgeries on vocal cords that
+make your pitch higher, but it also has consequences. You're not going to
+sing. I want to, so this isn't for me. Besides that, feminine voice isn't
+just about high pitch. In fact, it's less about pitch than resonance and
+articulation.
+
+I also started dyed my hair a bit. Started putting polish on my nails,
+mostly just shiny black. I like black color.
+
+My set of clothes started changing as well.
+
+But the closer it would get to the 4 months point, the worse I'd feel.
+A constant fight between "I should wait" and "why the hell would I ever
+wait".  I still saw a man in the mirror and I hated it more and more.
+
+To feel better I read upon facial hair removal and phoned a
 place where electrolysis (a very painful method) was one of the
 options.  The woman that picked up didn't really speak English and
 asked me to call some other place instead, but by insisting I got an
