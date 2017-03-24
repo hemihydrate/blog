@@ -98,7 +98,7 @@ I'd pick up a female character if that was possible.  It just felt
 right.  I mostly played first person shooters, meaning I wouldn't even
 *see* my in-game character, but somehow it still mattered a lot.
 
-Computers provided me with a comfort virtual world which, I think now,
+Computers provided me with a comfortable virtual world which, I think now,
 made me escape the reality a bit too much.
 
 ## School
