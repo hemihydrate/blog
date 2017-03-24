@@ -36,13 +36,13 @@ children:
  * Do you want us to die of a heart attack?
  * If you ever chose to proceed, I think we don't want to see you.
  * You aren't welcome at our place.
- * You think and care only about yourself, always.
+ * You think and care only of yourself, always.
  * I'll come and beat the shit out of you.
 
 And so on.  We still don't talk about this topic anymore.  They didn't
 even read up anything. Fun(?) fact: they believe gender specialists will
-tell me I'm not trans and will "get back to normal". Thing is, even if
-gender specialists would tell me I'm wrong, I would still continue.
+tell me I'm not trans and I will eventually "get back to normal". Thing is,
+even if gender specialists would tell me I'm wrong, I would still continue.
 Why? Read further.
 
 Came out at work.  Everyone is accepting, I've got a lot of great
@@ -53,11 +53,11 @@ gendered correctly as well.  Didn't expect any of that, really.
 ## Waiting
 
 I thought it's not a big deal.  There are always things to take care
-about while waiting.  There are hobbies to do.  Friends to hang out
+of while waiting.  There are hobbies to do.  Friends to hang out
 with. Stuff to read.
 
 Dropped around 7kg in three months by not eating well enough and
-running once in per two days. Developed a skin-care routine. Tried
+running once per two days. Developed a skin-care routine. Tried
 to fix my sleeping routine, but it's still far from perfect.
 
 Installed a voice-training app on my phone, designed specifically for
@@ -69,7 +69,7 @@ sing. I want to, so this isn't for me. Besides that, feminine voice isn't
 just about high pitch. In fact, it's less about pitch than resonance and
 articulation.
 
-I also started dyed my hair a bit. Started putting polish on my nails,
+I also dyed my hair a bit. Started putting polish on my nails,
 mostly just shiny black. I like black color.
 
 My set of clothes started changing as well.
