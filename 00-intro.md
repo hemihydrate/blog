@@ -12,8 +12,9 @@ Notes before reading:
 Stop reading if you feel bad and I'm sorry if you ever do feel bad.
 
 Hello, my name is E and I'm AMAB (assigned male at birth).  One could
-use term MTF (male-to-female) but some people dislike it.  Compare:
-"assigned male at birth by a look at the genitals" with "male becomes female".
+use term MTF (male-to-female) but some people dislike it. It also assumes the
+"final" gender, which in reality may simply be neither female nor male. Or be both.
+Compare: "assigned male at birth by a look at the genitals" with "male becomes female".
 I like the former, some prefer the latter. It's all about how one sees their
 own experience. And everyone's experience is different.
 
