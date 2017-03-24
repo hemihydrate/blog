@@ -217,7 +217,7 @@ them first).
 
 I told about DIY HRT, wrote down the kinds and current dosages, and
 they said a blood test will be arranged right away.  The whole talk
-was really good.  I felt comfortable throughout it, and happy after.
+went really well.  I felt comfortable throughout it, and happy after.
 Then I sat and waited for another person to call me (by my new name
 this time!) for a blood test.  It was fairly quick, no pain, no faint.
 
