@@ -123,8 +123,8 @@ mostly just wanted to not get into the same state of depression and
 going suicidal like before, since _now_ I knew the reasons behind.
 
 I lasted for 4 months.  Then I created a long document with all the
-possible variants of antiandrogens and estrogen possible, with prices,
-probable dosages per day.  I sorted the list by "ranking" all of the
+variants of antiandrogens and estrogen possible, with prices,
+assumed dosages per day.  I sorted the list by "ranking" all of the
 items after reading as much as possible about every single one of
 them.  It just ended up with most expensive ones at the top.  Then I
 lasted for two more weeks and ordered it online.
