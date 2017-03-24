@@ -211,7 +211,7 @@ I weeped at the point of my night dreams, there is just no other way.
 We talked about the changes I want to achieve.
 
 Finally, I was told what will happen next.  My next appointment will
-be in one or two months from now, there will many of appointments with
+be in one or two months from now, there will be many appointments with
 specialists of different kind (I'll mention which ones when I visit
 them first).
 
