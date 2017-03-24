@@ -129,7 +129,9 @@ day (morning and evening).  I have no idea what I'm doing but
 apparently my balls get like _x4_ times smaller, or something.  I
 don't feel any need for sex, at all.  That is actually great.
 
-My hairline just stopped receding altogether.
+My hairline just stopped receding altogether and now it's covered
+with lots of vellus hair. If it's not too late with HRT, I might
+even get my widow's peak fixed in a few years.
 
 ## Estradiol hemihydrate
 

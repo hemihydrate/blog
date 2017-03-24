@@ -119,7 +119,7 @@ are fine now.
 ## University
 
 The capital.  Way less toxic environment.  Starting to grow out hair
-only to realize I'm also starting to get widow peaks.  Welcome to the
+only to realize I'm also starting to get widow's peak.  Welcome to the
 Club of the Receding Harlines.  This is just the worst...  Trying to
 get along with girls (romantically) but it doesn't feel right.  Like I'm
 doing something completely different, no idea.  Being in a group of male
