@@ -93,6 +93,14 @@ have one and I love it).  But the face doesn't look that great anymore.
 And that thing...  I just hide it between my legs before staring in the
 mirror any other such time.
 
+When I got my first PC, I started playing computer games like crazy.
+I'd pick up a female character if that was possible.  It just felt
+right.  I mostly played first person shooters, meaning I wouldn't even
+*see* my in-game character, but somehow it still mattered a lot.
+
+Computers provided me with a comfort zone of virtual reality which, I
+think now, made me escape the reality a bit too much.
+
 ## School
 
 Being at home alone I could do whatever, but outside I had to adjust to
