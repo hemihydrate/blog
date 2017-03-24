@@ -145,6 +145,9 @@ Every night I get into bed I pray (not as a christian) to "become a girl
 in the morning". My eyes make pillows wet quite a lot since obviously
 praying doesn't work no matter how (or which kind of god) I try.
 
+I think about pregnancy and how it would be great for me to give birth to
+a baby. Why...
+
 Very often I see dreams of being a woman. With a feminine voice, with a
 body of a woman, with long hair.  Doing the usual stuff, nothing weird.
 I'm really greatful I have these.  The morning after that is just amazing,
