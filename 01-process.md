@@ -40,7 +40,10 @@ children:
  * I'll come and beat the shit out of you.
 
 And so on.  We still don't talk about this topic anymore.  They didn't
-even read up anything.
+even read up anything. Fun(?) fact: they believe gender specialists will
+tell me I'm not trans and will "get back to normal". Thing is, even if
+gender specialists would tell me I'm wrong, I would still continue.
+Why? Read further.
 
 Came out at work.  Everyone is accepting, I've got a lot of great
 responses to my coming out email.  People instantly started calling me
