@@ -36,6 +36,7 @@ children:
  * Do you want us to die of a heart attack?
  * If you ever chose to proceed, I think we don't want to see you.
  * You aren't welcome at our place.
+ * You think and care only about yourself, always.
  * I'll come and beat the shit out of you.
 
 And so on.  We still don't talk about this topic anymore.  They didn't
