@@ -84,8 +84,8 @@ hair and JUST TAKE MY MONEY, please.  It is expensive.
 
 ## Money
 
-It's good when there _are_ money.  Many people don't have them enough.
-Many people don't have them at all.  Swedish health care system takes
+It's good when there _is_ money.  Many people don't have it enough.
+Many people don't have it at all.  Swedish health care system takes
 care of that by requiring one to pay up to a specific amount, and then
 you don't pay anything at all for this year.  The problem is, Swedish
 health care doesn't really help when you're transgender and might kill
