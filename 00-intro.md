@@ -119,10 +119,10 @@ much dehydrated all the time since that was a great way to reduce the
 frequency of visiting the toilet.
 
 "Acting like a girl" slipped through quite a few times in school and I
-was really happy about no one trying to beat me up, but also understood
-it's too dangerous to continue when I saw how someone basically doing
-this all the time is being treated by their classmates. Hopefully they
-are fine now.
+was really happy no one tried to beat me up, but also understood it was
+too dangerous to continue when I saw how someone basically doing this
+all the time is being treated by their classmates. Hopefully they are
+fine now.
 
 ## University
 
