@@ -20,6 +20,8 @@ own experience. And everyone's experience is different.
 
 ## A woman
 
+UPDATE: [am I a non-binary?](03-non-binary.md)
+
 I am one.  It's not that I *associate* with women, no.  I am really a
 woman, and was one all my life.  When doctors see a newborn with a penis
 they usually go like "a boy!", when they see a vagina they are like "a
