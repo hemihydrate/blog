@@ -53,6 +53,11 @@ anything, not thinking of anything.  Just sitting.
 I don't "walk fast" as much as before.  I can walk slowly, not
 pressuring myself.
 
+Still a lesbian, still no any kind of attraction to men.  Some people
+report change in their sexuality because of HRT.  I don't know how
+much time it usually takes, or what the chances are, but mine is still
+exactly the same.
+
 It all might sound weird to some people, like "WTF, what was your
 problem".  I don't know and don't care really.  It's getting better
 and that's enough for me.
