@@ -21,4 +21,6 @@ Inside, I think it's a bit more complicated.
 
 I'll see how it goes and report here when things are more clear.
 
+Unrelated: fuck passing.
+
 [Back](index.md)
