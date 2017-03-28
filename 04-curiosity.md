@@ -19,7 +19,7 @@ They read books? I thought they only read `r/asktransgender`.
 
 They enjoy drawing or taking pictures of nature or people? I thought they just post timelines on imgur!!!
 
-And so on.
+And so on. Imagine talking to a woman having kids only about the "mom stuff". So how are your children? How is it to be a mom? Are you going to get more children? Do they poo a lot? What do they eat?
 
 I'm a person. Every transgender person is a *person* foremost. Please, don't view us as some
 funny creatures you saw at the zoo.
