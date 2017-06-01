@@ -3,9 +3,9 @@
 ## Endo
 
 Beginning of May I go to my second appointment at ANOVA, regarding my
-blood test.  I meet an endocrinologist.  They open up a table of their
-computer, full of numbers, and go through it, telling what each of
-them mean.  According to it, I'm fine.  My hormone levels are in
+blood test.  I meet an endocrinologist.  They open up a spreadsheet on
+their computer, full of numbers, and go through it, telling what each
+of them mean.  According to it, I'm fine.  My hormone levels are in
 "normal" female range.  I tell them that my dosage changed since the
 blood test (I went to 4mg of Estradiol instead of 2mg) and they say it
 should be fine as long as I feel well (I do, much better actually).
