@@ -225,4 +225,6 @@ People at ANOVA made me feel better.
 
 The next appointment is in May, and it seems to be regarding my blood test.
 
+[Continue to part II of The Process](05-process-2.md)
+
 [Back](index.md)
